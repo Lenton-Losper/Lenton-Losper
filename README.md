@@ -4,7 +4,7 @@
 🌱 I’m currently learning everything.
 💞️ I’m looking to collaborate on challenging projects.
 📫 How to reach me: Email me at llosperofficial@gmail.com.
-😄 Pronouns: Handsome/amazing.
+😄 Pronouns: He/Him.
 ⚡ Fun fact: "I'm a developer bro... 🚀"
 
 
